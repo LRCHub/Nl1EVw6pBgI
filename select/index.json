@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "ザ・リフレクティング・ゴッド",
+  "base_artist": "Marilyn Manson",
+  "createdAt": "2026-02-18T16:06:26.165168Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "The Reflecting God",
+      "artist": "Marilyn Manson",
+      "has_synced": false,
+      "path": "select/pl_01_The_Reflecting_God_Marilyn_Manson.txt"
+    }
+  ]
+}
