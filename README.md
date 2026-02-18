@@ -1,0 +1,109 @@
+# Marilyn Manson – ザ・リフレクティング・ゴッド
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Your world is an ashtray
+We burn and coil like cigarettes
+The more you cry your ashes turn
+to mud
+The nature of the leeches,
+The virgin's feeling cheated
+You've only spent a second of
+your life
+My world is unaffected,
+There is an exit here
+I say it is, then it's true,
+There is a dream inside a dream,
+I'm wide awake the more I sleep
+You'll understand when I'm dead
+I went to God just to see,
+And I was looking at me, yeah
+Saw heaven and hell were lies,
+When I'm God everyone... dies!
+Scar! Can you feel my power?
+Shoot! Here! And the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+One shot and the world gets
+smaller!
+Let's jump upon the sharp swords
+Cut away our smiles
+Without the threat of death
+There's no reason to live at all
+My world is unaffected,
+There is an exit here
+I say it is, then it's true,
+There is a dream inside a dream,
+I'm wide awake the more I sleep
+You'll understand when I'm dead
+I went to God just to see,
+And I was looking at me, yeah
+Saw heaven and hell were lies,
+When I'm God everyone... dies!
+Scar! Can you feel my power?
+Shoot! Here! And the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+One shot and the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+Shoot! Here! And the world gets
+smaller!
+Shoot! Shoot! Shoot,
+motherfucker!
+Shoot! Shoot! Shoot,
+motherfucker!
+Each thing I show you is a piece
+of my death...
+No salvation, ah ah!
+No forgiveness, ah ah!
+No salvation, ah ah!
+No forgiveness, ah ah!
+No salvation, ah ah!
+No forgiveness, ah ah!
+No salvation, ah ah!
+No forgiveness, ah ah!
+No salvation, ah ah!
+No forgiveness, ah ah!
+(This is beyond your experience)
+No salvation, ah ah!
+No forgiveness, ah ah!
+(Repeats)
+For-give-ness!
+(Repeat x8)
+I went to God just to see,
+And I was looking at me, yeah
+Saw heaven and hell were lies,
+When I'm God everyone... dies!
+Scar! Can you feel my power?
+Shoot! Here! And the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+Shoot! Here! And the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+Shoot! Here! And the world gets
+smaller!
+Scar! Scar! Can you feel my
+power?
+One shot and the world gets
+smaller!
+Shoot! Shoot! Shoot,
+motherfucker!
+Shoot! Shoot! Shoot,
+motherfucker!
+Shoot! Shoot! Shoot,
+motherfucker!
+Shoot! Shoot! Shoot,
+motherfucker!!!!!
+Shoot!!
+Shoot!!!
+Shoot!!!!
+Shoot!!!!
+```
